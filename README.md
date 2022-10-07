@@ -1,4 +1,4 @@
-Hello สวัสดี こんにちは 你好
+👋 Hello สวัสดี こんにちは 你好
 
 My name is Visatouch. My nickname is Boat.
 Also use "xerodotc" or "Shiro Doushi" as an alias on the internet.
